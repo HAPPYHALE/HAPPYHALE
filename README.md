@@ -12,7 +12,7 @@ Voce pode entrar em contato comigo 📧
 ou
 swichretro@gmail.com
 
-![](https://tenor.com/Z5lt.gif)
+![](https://media1.tenor.com/m/4gm7szH1mOUAAAAC/friends-chandler.gif)
 
 sigame os baos
 
