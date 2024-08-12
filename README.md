@@ -12,5 +12,7 @@ Voce pode entrar em contato comigo 📧
 ou
 swichretro@gmail.com
 
-![] (https://tenor.com/Z5lt.gif) 
+![](https://tenor.com/Z5lt.gif)
+
+sigame os baos
 
