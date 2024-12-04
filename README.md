@@ -1,10 +1,10 @@
 ## hi there eu sou abraham oliveira ^-^👋
 
--Estou estudando na [Alura](https://www.alura.com.br
+-Eu sou estudante da [Alura](https://www.alura.com.br
 
-e estou Desenvolvendo na linguagem java script
+e estou me Desenvolvendo na linguagem java script e html
 
-Eu utilizo o Github para Compartilhas meus projetos desenvolvidos
+Eu utilizo o Github para Compartilhas meus projetos que estão em desenvolvimento
 
 Voce pode entrar em contato comigo 📧
 
